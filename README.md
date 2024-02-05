@@ -1,4 +1,4 @@
-- Innovation and AMOA of Technology student 👩‍💻
+- Innovation & AMOA student 👩‍💻
 - Coding for a smarter future 🌐
 - Exploring the intersection of technology and business 🚀
 - Passionate about solving real-world challenges 💡
